@@ -1,0 +1,1 @@
+# MSI-Z390M-S01-OC-EFI
